@@ -1,0 +1,2 @@
+# MINI-PROJECT-OF-B.TECH-CSE-IBM-1ST-SEMESTER
+Name - Kritika Kashyap , Enrollment ID - ADTU/0/2025-29/BCSM/058
